@@ -14,7 +14,7 @@ Entrance hatch with key safe
 
 Comfortable queen size bed
 
-Private walk-in shower & separate toilet
+Walk-in shower & separate toilet
 
 Coffee & tea provided
 
