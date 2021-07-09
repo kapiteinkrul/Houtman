@@ -25,6 +25,8 @@ Linnen & towels included
 
 ![IMG_1930](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
+![IMG_1809](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
+
 ![Houtman18](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
 
 ![Houtman17 (1)](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
