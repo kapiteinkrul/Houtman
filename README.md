@@ -10,11 +10,13 @@ Comfortable queen size bed
 
 walk-in shower
 
-Coffee & tea 
+Coffee & tea provided
 
 kitchenette for heating up a light meal
 
 Linnen & towels included
+
+![Houtman3](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
 ![Houtman8](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
