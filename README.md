@@ -3,7 +3,6 @@
 
 # Welcome at B&B Houtman, your bright and spacious floating escape in Amsterdam
 
-![20190703 Oude Houthaven vanuit Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 
 Private design studio
 
@@ -16,3 +15,6 @@ Coffee & tea
 kitchenette for heating up a light meal
 
 Linnen & towels included
+
+
+![20190703 Oude Houthaven vanuit Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
