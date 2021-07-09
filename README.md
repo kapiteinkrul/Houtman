@@ -20,7 +20,7 @@ kitchenette for heating up a light meal
 
 Linnen & towels included
 
-
+Wifi
 
 
 
