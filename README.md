@@ -9,19 +9,12 @@ The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are also with
 It’s just a short (free) ferry hop across the river ‘het IJ’ to the  artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
 
 Private design studio
-
 Entrance hatch with key safe
-
 Comfortable queen size bed
-
 Private walk-in shower & separate toilet
-
 Coffee & tea provided
-
 kitchenette for heating up a light meal
-
 Linen & towels included
-
 Wifi
 
 
