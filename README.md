@@ -5,6 +5,7 @@ Van Diemenkade 21 - 1013 CR Amsterdam - houtmanbnb@gmail.com
 # Welcome at B&B Houtman, your bright and spacious floating escape in Amsterdam
 
 
+
 Private design studio
 
 Entrance hatch with key safe
