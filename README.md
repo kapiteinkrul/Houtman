@@ -18,7 +18,7 @@ Coffee & tea provided
 
 kitchenette for heating up a light meal
 
-Linnen & towels included
+Linen & towels included
 
 Wifi
 
