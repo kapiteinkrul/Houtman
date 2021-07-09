@@ -44,3 +44,5 @@ Wifi
 
 
 https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826
+
+# B&B HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - houtmanbnb@gmail.com
