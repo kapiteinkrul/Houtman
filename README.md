@@ -25,7 +25,8 @@ Linen & towels included
 Wifi
 
 Please contact us on houtmanbnb@gmail.com for further inquiries and bookings.
-Cheers
+
+Cheers,
 Jeremy & Maartje
 
 ![IMG_1930](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
