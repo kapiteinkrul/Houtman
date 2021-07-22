@@ -1,4 +1,4 @@
-# HOUTMAN
+# SHIP HOUTMAN
 
 Stay on a houseboat in Amsterdam 
 
@@ -6,7 +6,7 @@ Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb
 
 ![Houtman27](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
 
-# Welcome aboard B&B HOUTMAN, your bright and spacious floating escape in Amsterdam
+# Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
 
 For over 10 years we have been living on our houseboat, and have transformed the former hold into a stylish studio apartment. HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a pleasant calm and residential neighbourhood. We live here together with 30 something other families on houseboats. You are surrounded by big skies, old warehouses and modern architecture like the new landmark ‘Pontsteiger’. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are also within a 10 minute walk past the beautifully quaint and quiet Westelijke Eilanden area.
