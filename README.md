@@ -1,5 +1,5 @@
-# HOUTMAN
 
+HOUTMAN
 Stay on a houseboat in Amsterdam 
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
@@ -28,7 +28,7 @@ Linen & towels included
 
 Wifi
 
-Please contact us on houtmanbnb@gmail.com for further inquiries and bookings.
+Please contact us for further inquiries and bookings.
 
 Cheers,
 Jeremy & Maartje
