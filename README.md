@@ -8,8 +8,9 @@ Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb
 
 # Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
 
-We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. 
-Ship HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a pleasant calm and residential neighbourhood. We live here together with 30 something other families on houseboats. You will stay in the former hold of our ship, which we lovingly transformed into a spacious and bright studio with its own entrance. We will give you privacy, but since we live onboard as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
+We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which we lovingly transformed into a spacious and bright space with its own entrance. We will give you privacy, but since we live onboard as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
+
+Ship HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a calm and residential neighbourhood. We live here together with 30 something other families on houseboats. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
 It’s just a short (free) ferry hop across the river ‘het IJ’ to the artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
 
