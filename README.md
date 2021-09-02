@@ -1,6 +1,6 @@
 # SHIP HOUTMAN
 
-Stay on a houseboat in Amsterdam 
+Comfortable studio on a houseboat in Amsterdam 
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
@@ -8,9 +8,10 @@ Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb
 
 # Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
 
-For over 10 years we have been living on our houseboat, and have transformed the former hold into a stylish studio apartment. HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a pleasant calm and residential neighbourhood. We live here together with 30 something other families on houseboats. You are surrounded by big skies, old warehouses and modern architecture like the new landmark ‘Pontsteiger’. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
-The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are also within a 10 minute walk past the beautifully quaint and quiet Westelijke Eilanden area.
-It’s just a short (free) ferry hop across the river ‘het IJ’ to the  artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
+We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. 
+Ship HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a pleasant calm and residential neighbourhood. We live here together with 30 something other families on houseboats. You will stay in the former hold of our ship, which we lovingly transformed into a spacious and bright studio with its own entrance. We will give you privacy, but since we live onboard as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
+The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
+It’s just a short (free) ferry hop across the river ‘het IJ’ to the artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
 
 Private design studio
 
@@ -28,7 +29,7 @@ Linen & towels included
 
 Wifi
 
-Please contact us for further inquiries and bookings.
+Please contact us for further inquiries and bookings. We hope to meet you on board sometime!
 
 Cheers,
 Jeremy & Maartje
@@ -54,4 +55,4 @@ Jeremy & Maartje
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
 
 
-# B&B HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
+# Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
