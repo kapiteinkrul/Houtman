@@ -37,11 +37,19 @@ Jeremy & Maartje
 
 ![IMG_1930](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
+![outside view in the morning](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
+
 ![IMG_1809](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
+
+![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
 ![Houtman8](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
+![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
+
 ![Houtman25](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
+
+![IMG_2715](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
 
 ![Houtman18](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
 
@@ -60,10 +68,9 @@ Jeremy & Maartje
 
 The always changing view from our ship...
 
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
 
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
+
 
 ![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
 
-![IMG_2715](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
+
