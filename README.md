@@ -59,3 +59,4 @@ Jeremy & Maartje
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 ![outside view in the morning](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
+![outside view on a crisp sunny day] (https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
