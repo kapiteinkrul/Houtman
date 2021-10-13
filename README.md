@@ -51,18 +51,19 @@ Jeremy & Maartje
 
 ![20190703 Oude Houthaven vanuit Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 
-![IMG_2715](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
+
 
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
-
 
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 
-The always changing harbour colours...
+The always changing view from our ship...
 
 ![outside view in the morning](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
 
 ![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
 ![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
+
+![IMG_2715](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
