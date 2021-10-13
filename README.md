@@ -78,7 +78,8 @@ Wifi
 
 Beautiful ever changing views
 
-# Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
+# Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam
+# [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 ![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 ![Houtman being tugged](https://user-images.githubusercontent.com/87133912/137134308-e7f6ec03-12ac-4ef4-9ea9-237265d81159.jpg)
