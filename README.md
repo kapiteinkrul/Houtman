@@ -60,9 +60,9 @@ Jeremy & Maartje
 
 ![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
 
-![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
-
 ![Entrance hatch with key safe](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
+
+![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
 
 ![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
