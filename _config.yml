@@ -1,2 +1,2 @@
 theme: jekyll-theme-tactile
-  - jekyll-seo-tag
+plugins: jekyll-seo-tag
