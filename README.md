@@ -47,7 +47,7 @@ Jeremy & Maartje
 
 ![Living witt woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
-![view from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
+![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
 
 ![Coffe and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
 
@@ -73,4 +73,4 @@ Jeremy & Maartje
 ![IMG_0567](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
 ![IMG_0568](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
 ![IMG_0569](https://user-images.githubusercontent.com/87133912/137126420-c9a9bf2c-d7ec-46c3-854e-aa12071b9bcd.JPG)
-![b41d335b-65ef-40fb-91c7-c9a4b513f5e4](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
+
