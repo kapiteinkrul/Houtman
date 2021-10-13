@@ -37,6 +37,8 @@ Please contact us for further inquiries and bookings. We hope to meet you on boa
 Cheers,
 Jeremy & Maartje
 
+![Panorama of harbour daytime](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
+
 ![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
 ![view from houseboat in morning light](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
@@ -49,9 +51,9 @@ Jeremy & Maartje
 
 ![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
 
-![Coffe and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
+![Coffee and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
 
-![panoramic view harbour](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
+![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
 
 ![Porthole view of Pontsteiger](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
 
@@ -67,10 +69,8 @@ Jeremy & Maartje
 
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
-![IMG_0564](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
-![IMG_0565](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
-![IMG_0566](https://user-images.githubusercontent.com/87133912/137126403-da36556d-8c32-4e6a-b6a0-e0495c6bd615.JPG)
-![IMG_0567](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
-![IMG_0568](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
-![IMG_0569](https://user-images.githubusercontent.com/87133912/137126420-c9a9bf2c-d7ec-46c3-854e-aa12071b9bcd.JPG)
+![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
 
+![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
+
+![panoramic view harbour](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
