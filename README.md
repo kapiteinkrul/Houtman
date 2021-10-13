@@ -45,15 +45,15 @@ Jeremy & Maartje
 
 ![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
-![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
+![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
 
 ![Walk in shower and sink](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
 
-![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
+![Misty view](https://user-images.githubusercontent.com/87133912/137129261-bbb261c9-f622-4cf5-8761-6453b667d58c.jpg)
 
 ![Coffee and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
 
-![Misty view](https://user-images.githubusercontent.com/87133912/137129261-bbb261c9-f622-4cf5-8761-6453b667d58c.jpg)
+![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
 ![Porthole view of Pontsteiger](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
 
