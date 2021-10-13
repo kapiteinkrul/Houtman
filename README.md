@@ -4,7 +4,7 @@ Comfortable studio on a houseboat in Amsterdam
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
-![Houtman27](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
+![Spacious bright living](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
 
 # Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
 
@@ -37,29 +37,29 @@ Please contact us for further inquiries and bookings. We hope to meet you on boa
 Cheers,
 Jeremy & Maartje
 
-![IMG_1930](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
+![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
+![view from houseboat in morning light](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
 
-![IMG_1809](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
+![Walk in shower and sink](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
 
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
+![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
-![Houtman8](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
+![Living witt woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
+![view from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
 
-![Houtman25](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
+![Coffe and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
 
-![IMG_2715](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
+![panoramic view harbour](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
 
-![Houtman18](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
+![Porthole view of Pontsteiger](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
 
-![Houtman17 (1)](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
+![Entrance hatch with key safe](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
 
-![Houtman3](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
+![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
-![20190703 Oude Houthaven vanuit Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
+![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 
 
 
