@@ -30,6 +30,8 @@ Linen & towels included
 
 Wifi
 
+Beautiful ever changing views
+
 Please contact us for further inquiries and bookings. We hope to meet you on board sometime!
 
 Cheers,
@@ -64,13 +66,3 @@ Jeremy & Maartje
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
 
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
-
-
-The always changing view from our ship...
-
-
-
-
-![outside view in the morning](https://user-images.githubusercontent.com/87133912/137099226-a14caa08-aca1-4069-904e-f71727eb8507.JPG)
-
-
