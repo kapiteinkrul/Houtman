@@ -1,6 +1,6 @@
-# SHIP HOUTMAN
 
-Comfortable studio on a houseboat in Amsterdam 
+# SHIP HOUTMAN
+Comfortable houseboat studio in Amsterdam 
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
@@ -12,11 +12,11 @@ We offer a pleasant and private design studio with all amenites to enjoy a comfo
 
 ![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
-Ship HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a calm and residential neighbourhood. We live here together with 30 something other families on houseboats. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
+HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a calm and residential neighbourhood. We live here together with 30 something other families on houseboats. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
 It’s just a short (free) ferry hop across the river ‘het IJ’ to the artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
 
-You can contact us via [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com) for inquiries and bookings. 
+You can contact us at [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com) for inquiries and bookings. 
 
 We hope to meet you on board sometime!
 
