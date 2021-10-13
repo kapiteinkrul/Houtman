@@ -61,12 +61,12 @@ Jeremy & Maartje
 
 ![Entrance hatch with key safe](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
 
-![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
-
 ![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
 
-![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
+![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
+
+![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 
 
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
