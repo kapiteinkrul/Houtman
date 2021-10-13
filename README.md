@@ -67,4 +67,3 @@ Jeremy & Maartje
 
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
- {% seo %} houseboat amsterdam B&B BNB weekend hotel stay special spacious central views luxury luxurious visit bright romantic
