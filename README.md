@@ -37,18 +37,17 @@ Please contact us for further inquiries and bookings. We hope to meet you on boa
 Cheers,
 Jeremy & Maartje
 
-![Panorama of harbour daytime](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
-![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
+![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
-![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
+![Living with woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
 ![view from houseboat in morning light](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
 
-![Walk in shower and sink](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
+![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
 ![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
-![Living witt woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
+![Walk in shower and sink](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
 
 ![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
 
@@ -66,7 +65,8 @@ Jeremy & Maartje
 
 ![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
-![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
+![Panorama of harbour daytime](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
+![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
 
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
 
