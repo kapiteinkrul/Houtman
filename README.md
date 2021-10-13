@@ -38,6 +38,7 @@ Cheers,
 Jeremy & Maartje
 
 ![Panorama of harbour daytime](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
+![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
 
 ![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
 
@@ -53,27 +54,22 @@ Jeremy & Maartje
 
 ![Coffee and tea](https://user-images.githubusercontent.com/87133912/125065622-52a0c300-e0b2-11eb-9eb0-961d34734c93.jpg)
 
-![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
+![Misty view](https://user-images.githubusercontent.com/87133912/137129261-bbb261c9-f622-4cf5-8761-6453b667d58c.jpg)
 
 ![Porthole view of Pontsteiger](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
+
+![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
 
 ![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
 
 ![Entrance hatch with key safe](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
 
-![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
-
 ![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 
-
-![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
-
+![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
 
 # Ship HOUTMAN - Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
-
-
-
-![panoramic view harbour](https://user-images.githubusercontent.com/87133912/125065845-a0b5c680-e0b2-11eb-8cf9-2fac3b0d291e.jpg)
+![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
