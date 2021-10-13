@@ -17,11 +17,11 @@ Ship HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): clos
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
 It’s just a short (free) ferry hop across the river ‘het IJ’ to the artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
 
-Please contact us for further inquiries and bookings. We hope to meet you on board sometime!
+Please find below an impression of the studio and the ever changing skies in our harbour You can contact us via [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com) for inquiries and bookings. 
 
-Cheers,
+We hope to meet you on board sometime!
+
 Jeremy & Maartje
-[houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 
 ![Living with woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
