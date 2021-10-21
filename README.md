@@ -50,6 +50,8 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 
 ![table porthole kitchen](https://user-images.githubusercontent.com/87133912/138271793-9a328ce1-14ba-4c0e-abcf-a22ad812a111.jpg)
 
+
+
 # The colours and views from the studio
 ![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
@@ -67,8 +69,12 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 
 ![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
 
+
+
 # Where to find HOUTMAN
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
+
+
 
 # AHOY!
 For inquiries and bookings please contact us at [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
