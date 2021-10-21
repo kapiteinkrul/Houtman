@@ -3,14 +3,24 @@
 Comfortable houseboat studio in Amsterdam 
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
+![View from veem](https://user-images.githubusercontent.com/87133912/138254494-0b82415c-a309-4f16-829a-c6ebed6e4d77.JPG)
+![IMG_1795](https://user-images.githubusercontent.com/87133912/138254510-9d019045-b4aa-4e61-8eb2-6781f4804272.jpg)
+![IMG_1792](https://user-images.githubusercontent.com/87133912/138254504-4cfab99d-2771-47d4-bf7b-3c5aa7e1d736.jpg)
 
-![Spacious bright living](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
+
+![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
+![IMG_1834](https://user-images.githubusercontent.com/87133912/138254521-e5b2dd00-29ab-4730-987d-47b5aeb87b7a.jpg)
+
+
+
+
+
 
 # Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
 
 We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which we lovingly transformed into a spacious and bright space with its own entrance. We will give you privacy, but since we live onboard as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
 
-![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
+![Spacious bright living](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
 
 HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a calm and residential neighbourhood. We live here together with 30 something other families on houseboats. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
@@ -23,6 +33,10 @@ We hope to meet you on board sometime!
 Jeremy & Maartje
 
 ![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
+![Houtman36 (1)](https://user-images.githubusercontent.com/87133912/138249955-e5238bb7-ed3e-464f-a9cf-6a0f19c141ad.jpg)
+![Houtman15 (2)](https://user-images.githubusercontent.com/87133912/138250008-856478a6-1e8d-4f7e-99cd-0cb7b3c9518e.jpg)
+
+
 
 ![Living with woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
 
@@ -41,7 +55,7 @@ Jeremy & Maartje
 ![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
 
 ![Porthole view of Pontsteiger](https://user-images.githubusercontent.com/87133912/125059803-00f53a00-e0ac-11eb-94f4-f51ac94f3bb8.jpg)
-
+![IMG_0601](https://user-images.githubusercontent.com/87133912/138250741-0155c182-5fed-4526-96ce-487744744ad4.jpg)
 ![View stormy skies](https://user-images.githubusercontent.com/87133912/137126374-ddad3011-0661-409e-ae2d-a9d9c817a6ee.JPG)
 
 ![Entrance hatch with key safe](https://user-images.githubusercontent.com/87133912/125060492-b88a4c00-e0ac-11eb-99e5-533cab32c95a.jpg)
@@ -49,6 +63,8 @@ Jeremy & Maartje
 ![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
 
 ![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
+
+![full moon at graansilo](https://user-images.githubusercontent.com/87133912/138254539-e3ec067d-cacc-452e-a31e-acd9cf291871.jpg)
 
 ![Panorama of harbour daytime](https://user-images.githubusercontent.com/87133912/137126414-c16e8761-4840-48af-81d7-2e6ff1192fb7.JPG)
 
@@ -77,3 +93,6 @@ Beautiful ever changing views
 
 ![View Oude Houthaven from Pontsteiger](https://user-images.githubusercontent.com/87133912/125059558-bb387180-e0ab-11eb-83ec-ffcf771e638b.JPG)
 ![Houtman being tugged](https://user-images.githubusercontent.com/87133912/137134308-e7f6ec03-12ac-4ef4-9ea9-237265d81159.jpg)
+
+
+![IMG_0092](https://user-images.githubusercontent.com/87133912/138254532-d8970188-9d0a-41dd-ae94-83222c38c30d.jpg)
