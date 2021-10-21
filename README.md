@@ -2,7 +2,7 @@
 # HOUSEBOAT HOUTMAN
 ![wheelhouse](https://user-images.githubusercontent.com/87133912/138270868-ac75dd0e-2cf8-43ed-9722-b243c12c2249.jpg)
 
-# Comfortable and private studio on houseboat in Amsterdam 
+# Comfortable and private studio in Amsterdam 
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
