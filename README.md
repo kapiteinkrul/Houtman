@@ -53,7 +53,7 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 
 
 
-# The colours and views from the studio
+# Colourful views 
 ![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
 ![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
