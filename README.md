@@ -1,8 +1,7 @@
 
-# HOUSEBOAT HOUTMAN
 ![wheelhouse](https://user-images.githubusercontent.com/87133912/138270868-ac75dd0e-2cf8-43ed-9722-b243c12c2249.jpg)
 
-# Comfortable and private studio in Amsterdam 
+# HOUSEBOAT HOUTMAN, your bright and spacious floating escape in Amsterdam
 
 Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
@@ -12,7 +11,7 @@ Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb
 
 
 
-# Welcome aboard ship HOUTMAN, your bright and spacious floating escape in Amsterdam
+# Comfortable design studio
 
 We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which we lovingly transformed into a spacious and bright space with its own entrance. We will give you privacy, but since we live onboard as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
 
