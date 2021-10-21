@@ -33,7 +33,6 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 
 # The studio at a glance
 ![B&B with entrance hatch](https://user-images.githubusercontent.com/87133912/138250008-856478a6-1e8d-4f7e-99cd-0cb7b3c9518e.jpg)
-
 ![Front deck](https://user-images.githubusercontent.com/87133912/125060212-6b0ddf00-e0ac-11eb-9b8a-824c19f353a9.jpg)
 ![Houtman4 (1)](https://user-images.githubusercontent.com/87133912/138280698-935069a8-09a7-44c3-87a3-b1cd6faac525.jpg)
 ![resized inside stairs](https://user-images.githubusercontent.com/87133912/138282601-927f429c-23df-4b6b-90d1-ce0fa4b5ba82.jpg)
