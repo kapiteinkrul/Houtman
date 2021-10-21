@@ -38,13 +38,9 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 ![Houtman4 (1)](https://user-images.githubusercontent.com/87133912/138280698-935069a8-09a7-44c3-87a3-b1cd6faac525.jpg)
 ![resized inside stairs](https://user-images.githubusercontent.com/87133912/138282601-927f429c-23df-4b6b-90d1-ce0fa4b5ba82.jpg)
 ![Houtman12 (1)](https://user-images.githubusercontent.com/87133912/138280741-d47d75ca-478f-4859-8773-f004ceb0bc76.jpg)
-
 ![Living with woodburner](https://user-images.githubusercontent.com/87133912/125060012-3863e680-e0ac-11eb-891e-1c4c489a8f03.jpg)
-
 ![Walk in shower and sink](https://user-images.githubusercontent.com/87133912/125064752-449e7280-e0b1-11eb-99a0-85917e3a8d51.jpg)
-
 ![Queensize bed](https://user-images.githubusercontent.com/87133912/125064542-0c972f80-e0b1-11eb-812a-2d84d9557f64.jpg)
-
 ![table porthole kitchen](https://user-images.githubusercontent.com/87133912/138271793-9a328ce1-14ba-4c0e-abcf-a22ad812a111.jpg)
 
 # The colours and views from the studio
@@ -53,7 +49,6 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 ![view from houseboat in morning light](https://user-images.githubusercontent.com/87133912/137098752-7bc5d3ac-f609-42d8-937a-efed7cbddc11.jpg)
 ![Misty view](https://user-images.githubusercontent.com/87133912/137129261-bbb261c9-f622-4cf5-8761-6453b667d58c.jpg)
 ![view from houseboat on crisp clear day](https://user-images.githubusercontent.com/87133912/137099029-bd0889f9-697e-4dfd-b31d-3ebbd824a166.jpg)
-
 ![Graansilo in morning light](https://user-images.githubusercontent.com/87133912/137126418-c3b41921-33ae-403d-b215-b922370ec41c.JPG)
 ![full moon at graansilo](https://user-images.githubusercontent.com/87133912/138254539-e3ec067d-cacc-452e-a31e-acd9cf291871.jpg)
 ![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
