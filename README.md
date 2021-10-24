@@ -1,5 +1,6 @@
 
-![wheelhouse](https://user-images.githubusercontent.com/87133912/138270868-ac75dd0e-2cf8-43ed-9722-b243c12c2249.jpg)
+![Houtman in full with pontseiger in background](https://user-images.githubusercontent.com/87133912/138601925-da329044-4bfd-4576-a0de-799ae66fc0c2.jpg)
+
 
 # HOUSEBOAT HOUTMAN, your bright and spacious floating escape in Amsterdam
 
