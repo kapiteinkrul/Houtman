@@ -65,8 +65,6 @@ Private design studio // Entrance hatch with key safe // Comfortable queen size 
 
 ![Panorama fog](https://user-images.githubusercontent.com/87133912/137126398-e9f1a49b-4b94-4df1-8917-910fe9761b03.JPG)
 
-
-
 ![Swan swimming towards boat](https://user-images.githubusercontent.com/87133912/148761642-24d84f88-9612-4b12-b371-394a39936bd6.mp4)
 
 
