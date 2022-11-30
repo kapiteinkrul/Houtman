@@ -5,16 +5,16 @@
 # HOUSEBOAT HOUTMAN 
 ## Bright and spacious floating escape in Amsterdam
 
-### Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
+## Van Diemenkade 21 - 1013 CR Amsterdam - [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 #### ![Spacious bright living](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
 
-### Comfortable design studio
+## Comfortable design studio
 We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which is lovingly transformed into a spacious and bright space with its own entrance. The studio is completely private, but since we live on board as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
 
 ![View from veem](https://user-images.githubusercontent.com/87133912/138254494-0b82415c-a309-4f16-829a-c6ebed6e4d77.JPG)
 
-### Oude Houthaven: Quiet, central and stunning
+## Oude Houthaven: Quiet, central and stunning
 HOUTMAN is perfectly located in the Old Wood Harbour (Oude Houthaven): close enough to easily walk (or bike) into town, yet in a calm and residential neighbourhood. We live here together with 30 something other families on houseboats. There’s several bars and restaurants close by, as well as supermarkets within a 10 minute walk.
 The famous area Jordaan and shopping streets Haarlemmerstraat/dijk are a pleasant walk away past the beautifully quaint and quiet Westelijke Eilanden area.
 It’s just a short (free) ferry hop across the river ‘het IJ’ to the artsy NDSM area with several bars, summer festivals, a city beach, street art, and a huge monthly flea market (IJ-Hallen).
@@ -25,7 +25,7 @@ We hope to meet you on board sometime!
 
 Jeremy & Maartje
 
-### Amenities
+## Amenities
 + Private design studio
 + Entrance hatch with key safe, self check-in possible
 + Comfortable living with woodburner
@@ -38,7 +38,7 @@ Jeremy & Maartje
 + Wifi
 + Central heating
 
-### The studio at a glance
+## The studio at a glance
 ![B&B in golden hour](https://user-images.githubusercontent.com/87133912/138254510-9d019045-b4aa-4e61-8eb2-6781f4804272.jpg)
 
 ![B&B with entrance hatch](https://user-images.githubusercontent.com/87133912/138250008-856478a6-1e8d-4f7e-99cd-0cb7b3c9518e.jpg)
@@ -59,7 +59,7 @@ Jeremy & Maartje
 
 
 
-### Colourful views 
+## Colourful views 
 ![View from houseboat2](https://user-images.githubusercontent.com/87133912/137128902-ab51c2f0-d2b1-41fd-a553-92ff48ec7c2d.jpg)
 
 ![View from houseboat with rainbow](https://user-images.githubusercontent.com/87133912/137126549-edf6105c-d03b-4e2b-9732-5833d4bcf7b4.JPG)
@@ -79,12 +79,12 @@ Jeremy & Maartje
 
 
 
-### Where to find HOUTMAN
+## Where to find HOUTMAN
 [<img src="https://user-images.githubusercontent.com/87133912/125082233-42dfa980-e0c7-11eb-8e74-fb0140846531.PNG">](https://www.google.com/maps/place/B%26B+HOUTMAN/@52.390493,4.8855831,17z/data=!4m12!1m6!3m5!1s0x47c60970c5c38619:0x14d1e456e0906b75!2sB%26B+HOUTMAN!8m2!3d52.3904865!4d4.8877826!3m4!1s0x47c60970c5c38619:0x14d1e456e0906b75!8m2!3d52.3904865!4d4.8877826)
 
 
 
-### AHOY!
+## AHOY!
 For inquiries and bookings please contact us at [houtmanbnb@gmail.com](mailto:houtmanbnb@gmail.com)
 
 ![view from pontsteiger panorama crop](https://user-images.githubusercontent.com/87133912/138273801-577cd0ad-ab92-4277-89e3-f07c29094b53.jpg)
