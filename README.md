@@ -10,7 +10,7 @@
 #### ![Spacious bright living](https://user-images.githubusercontent.com/87133912/125058988-1fa70100-e0ab-11eb-8193-d855c37f3c07.jpg)
 
 ## Comfortable design studio
-We offer a pleasant and private design studio with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which is lovingly transformed into a spacious and bright space with its own entrance. The studio is completely private, but since we live on board as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
+We offer a pleasant and private design studio for maximum two people with all amenites to enjoy a comfortable stay in Amsterdam. You will stay in the former hold of our ship, which is lovingly transformed into a spacious and bright space with its own entrance. The studio is completely private, but since we live on board as well we are always available for any questions or requests. HOUTMAN is surrounded by water and big skies, old warehouses and modern architecture.
 
 ![View from veem](https://user-images.githubusercontent.com/87133912/138254494-0b82415c-a309-4f16-829a-c6ebed6e4d77.JPG)
 
@@ -26,7 +26,7 @@ We hope to meet you on board sometime!
 Jeremy & Maartje
 
 ## Amenities
-+ Private design studio
++ Private design studio 
 + Entrance hatch with key safe, self check-in possible
 + Comfortable living with woodburner
 + Queen size bed
