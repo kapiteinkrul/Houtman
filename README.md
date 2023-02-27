@@ -35,7 +35,7 @@ Jeremy & Maartje
 + Dining area
 + Coffee & tea provided
 + Linen & towels provided
-+ Wifi
++ Fast Wifi
 + Central heating
 
 ## The studio at a glance
