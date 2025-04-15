@@ -28,7 +28,7 @@ Jeremy & Maartje
 ## Amenities
 + Private design studio 
 + Entrance hatch with key safe, self check-in possible
-+ Comfortable living with woodburner
++ Comfortable living
 + Queen size bed
 + Walk-in shower & separate toilet
 + Kitchenette
